@@ -1,0 +1,1 @@
+# Be-an-Earth-trend-detective-NASA-Space-Apps-Challenge-2026
